@@ -12,4 +12,4 @@ Meu nome é gustavo oiveira da luz
 
 
 
- ![](https://media1.tenor.com/m/b-8qLUrPAgQAAAAC/angry.gif)
+ ![](https://unsplash.com/pt-br/fotografias/um-close-up-de-um-computador-portatil-com-codigo-na-tela-lYFERR5dTG4)
