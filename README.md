@@ -12,4 +12,4 @@ Meu nome é gustavo oiveira da luz
 
 
 
- ![](https://unsplash.com/pt-br/fotografias/um-close-up-de-um-computador-portatil-com-codigo-na-tela-lYFERR5dTG4)
+ ![](<a href="https://pt.vecteezy.com/foto/3334908-desktop-source-code-and-wallpaper-by-coding-and-programming">código-fonte do desktop e papel de parede por codificação e programação. Fotos de banco de imagens por Vecteezy</a>)
